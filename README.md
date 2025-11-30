@@ -1,1 +1,1 @@
-#  Życzenia Świąteczne dla ZSP PIASEK
+Wesołych Świąt! Niech magiczna moc wigilijnego wieczoru Wam spokój, wytchnienie i łączność. Wcześniejsze święta Bożego Narodzenia są tylko własne, a Nowy Rok obdaruje Was zdrowiem, pomyślność i szczęściem.-Życzy klasa 7b
